@@ -11,6 +11,8 @@
 
 - 📫 How to reach me **jun.kang223@hotmail.com**
 
+- 📄 Know about my experiences [https://canadiandoc.github.io/](https://canadiandoc.github.io/)
+
 - ⚡ Fun fact **I am probably either coding or 3D printing something, one or the other really**
 
 <h3 align="left">Connect with me:</h3>
